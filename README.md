@@ -1,6 +1,6 @@
 ## oiii!!😝
 * Me chamo Ana Luiza, tenho 15 anos de cadeia e nasci no dia 19/10/2009 em curitiba-PR
-* tenho nivél básico em inglẽs 🇺🇸
+* tenho nivél básico em inglẽs, em minhas horas vagas eu faço o [Inglês Paraná](https://www.educacao.pr.gov.br/ingles_parana)  🇺🇸
 * atualmente apenas estudo e trabalho em minhas horas vagas
 * gosto de dormir, me divertir com as minhas amigas e viajar para a praia 🌊
 * pretendo ser bem sucedida.
