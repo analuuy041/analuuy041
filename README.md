@@ -9,4 +9,4 @@
 
    @ana.luiza.paula@escola.pr.gov.br
 
-  ![](https://tenor.com/pt-BR/view/but-i’m-not-original-gif-4077672862622552877)
+  ![](https://media1.tenor.com/m/OJbN3TbeEy0AAAAd/but-i%E2%80%99m-not-original.gif)
